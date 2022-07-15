@@ -1,7 +1,7 @@
 # workout
 hdxzxlxr
-jvtrstrujt
- om 
+jvtrstrujt          cccccccccccccccccccccccc
+ om                         dddddddddddddddd
 1 st step we succed
 ten for 
 2 nd step !
